@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @theawesam-hub
+- 👀 I’m interested in eeeehm ... programming I think?
+- 🌱 I’m currently learning websites (more interested in games).
+- 💞️ I’m looking to collaborate on ... no clue.
